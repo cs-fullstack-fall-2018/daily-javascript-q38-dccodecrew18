@@ -30,3 +30,4 @@ Choose the correct answer
 4) Array [ "A", "N", "R", "T", "C", "O", "E" ]
 
 ENTER ANSWER HERE!!!
+Im going to say the answer is 3, and with that review my books at home alot more
